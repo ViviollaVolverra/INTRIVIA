@@ -10,3 +10,6 @@ Menyenangkan, banyak aktivitas seru dan bermanfaat, sangat informatif
 
 ## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini 
 Selalu aktif, banyak temannya, asik
+
+## Harapan Kuliah
+Dapet banyak ilmu, manfaat, serta pengalaman yang dapat mempersiapkanku untuk kerja
